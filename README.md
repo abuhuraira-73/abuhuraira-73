@@ -1,12 +1,9 @@
 👨‍💻 Final-year BCA Student @ Techno India Main
 
 🛠 Full-Stack Developer | MERN | Spring Boot + React | JSP servlet stack | .net | <br/>
-🔧 Fixing Bugs & Breaking Code (Intentionally 👀) <br/>
 🛠️ Built Chromaic, Shayata & CroissoCafe – Crafting unique digital experiences! 🚀 <br/>
 💼 Freelancer in the Making – Open for cool projects! <br/>
 🔗 Follow me on Twitter - https://x.com/Abuhuraira0703 <br/>
-🔗 Connect with me on LinkedIn - www.linkedin.com/in/abu-huraira-jamal-902aa2228 <br/>
-<br/>
 Let's connect and build something awesome! 🔥<br/> 
 
 
