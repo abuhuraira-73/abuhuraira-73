@@ -1,4 +1,4 @@
-👨‍💻 Final-year BCA Student @ Techno India Main
+👨‍💻 Final-year BCA Student @ Techno Main Salt Lake
 
 🛠 Full-Stack Developer | MERN | Spring Boot + React | JSP servlet stack | .net | <br/>
 🛠️ Built Chromaic, Shayata & CroissoCafe – Crafting unique digital experiences! 🚀 <br/>
