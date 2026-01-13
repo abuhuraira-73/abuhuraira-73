@@ -4,6 +4,7 @@
 🛠️ Built Chromaic, Shayata & CroissoCafe – Crafting unique digital experiences! 🚀 <br/>
 💼 Freelancer in the Making – Open for cool projects! <br/>
 🔗 Follow me on Twitter - https://x.com/Abuhuraira0703 <br/> 
+🔗 Follow me on LinkedIn - https://x.com/Abuhuraira0703](https://www.linkedin.com/in/abuhurairajamal/ <br/> 
 Let's connect and build something awesome! 🔥<br/> 
 
 
